@@ -1,13 +1,5 @@
 # Clownette/Starlight!
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31msx7c2nbmd2emtwnleu2crciau&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
-  </a>
-</p>
-
-
 <img width="1080" alt="rainbowdiv4" src="https://github.com/user-attachments/assets/87a08410-0c4c-4312-8edb-cc1d9ce25440" />
-
 
 
 Hello!! I'm Starlight or also known as Star! I absolutely LOVE Hunter: Call of the Wild !! I play on pc and js started playing 28/6/26. PLEASE IF U PLAY MY DC IS st4rl1ght_w4s_h3r3. SEND A QUICK DM AND I'LL REPLY FOR COTW!! I'm also up for cotw tips, I have the maps yYukon and Peru alongside the bloodhound DLC. THANK YOU GUYS!!!!
