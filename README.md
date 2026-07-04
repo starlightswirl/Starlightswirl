@@ -1,5 +1,5 @@
 # Clownette/Starlight!
-<img width="540" alt="tumblr_458f5870f3a0d19cf4889532c4ca838c_7e8340ac_540" src="https://github.com/user-attachments/assets/88f75dcf-341a-48dd-8e34-65723e0eebe6" />
+<div align="center"> <img width="540" alt="tumblr_458f5870f3a0d19cf4889532c4ca838c_7e8340ac_540" src="https://github.com/user-attachments/assets/88f75dcf-341a-48dd-8e34-65723e0eebe6" />
 
 
 <img width="1080" alt="rainbowdiv4" src="https://github.com/user-attachments/assets/87a08410-0c4c-4312-8edb-cc1d9ce25440" />
