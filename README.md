@@ -6,7 +6,7 @@
 </p>
 
 
-<img width="1080" height="40" alt="rainbowdiv4" src="https://github.com/user-attachments/assets/87a08410-0c4c-4312-8edb-cc1d9ce25440" />
+<img width="1080" alt="rainbowdiv4" src="https://github.com/user-attachments/assets/87a08410-0c4c-4312-8edb-cc1d9ce25440" />
 
 
 
