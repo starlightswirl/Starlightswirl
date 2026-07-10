@@ -5,7 +5,7 @@
 <img width="1080" alt="rainbowdiv4" src="https://github.com/user-attachments/assets/87a08410-0c4c-4312-8edb-cc1d9ce25440" />
 
 
-Hello!! I'm Starlight or also known as Star! I absolutely LOVE Hunter: Call of the Wild !! I play on pc and js started playing 28/6/26. PLEASE IF U PLAY MY DC IS st4rl1ght_w4s_h3r3. SEND A QUICK DM AND I'LL REPLY FOR COTW!! I'm also up for cotw tips, I have the maps Yukon and Peru alongside the bloodhound DLC. THANK YOU GUYS!!!! GO SIGH MY ATA!!!/NOT FORCE <div align="center"> <img width="129" height="38" alt="68747470733a2f2f692e696d6775722e636f6d2f6e4c6b504b46322e676966" src="https://github.com/user-attachments/assets/6c706065-4e51-4500-a2b0-ad50df732494" />
+Hello!! I'm Starlight or also known as Star! I absolutely LOVE Hunter: Call of the Wild !! I play on pc and js started playing 28/6/26. PLEASE IF U PLAY MY DC IS st4rl1ght_w4s_h3r3. SEND A QUICK DM AND I'LL REPLY FOR COTW!! I'm also up for cotw tips, I have the maps Yukon and Peru alongside the bloodhound DLC. THANK YOU GUYS!!!! GO SIGH MY ATA!!!/NOT FORCE https://starlightswirls.atabook.org/ <div align="center"> <img width="129" height="38" alt="68747470733a2f2f692e696d6775722e636f6d2f6e4c6b504b46322e676966" src="https://github.com/user-attachments/assets/6c706065-4e51-4500-a2b0-ad50df732494" />
 
  <img width="300" height="20" alt="fuckice" src="https://github.com/user-attachments/assets/8c76e508-2c93-498f-bebf-04c9851fdd5c" />
  <img width="200" height="20" alt="i luv boyz!" src="https://github.com/user-attachments/assets/5c11f610-97ae-4a5d-b1d8-054b022fa3f1" />
